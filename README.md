@@ -1,0 +1,2 @@
+# ddos
+👑 SC DDOS 👑
